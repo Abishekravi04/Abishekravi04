@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on biomedical companies
 - 📫 How to reach me - abishekravi204@gmail.com
 - 😄 Pronouns: He,Abi
-- ⚡ Fun fact: 
+- ⚡ Fun fact: i'm jovial
 
 <!---
 Abishekravi04/Abishekravi04 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
